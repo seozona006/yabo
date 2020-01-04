@@ -15,7 +15,6 @@
 
 
 ## 域名记录  
-http://www.51facai.top  
 http://www.essayr.com  
 http://www.Lnrcpg.com  
 http://www.yb5175.top  
